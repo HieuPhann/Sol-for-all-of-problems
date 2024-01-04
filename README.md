@@ -1,0 +1,1 @@
+# Sol-for-all-of-problems
